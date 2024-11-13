@@ -24,7 +24,7 @@ Busco atuar em projetos que integrem **tecnologia, gestão e dados**, ajudando e
 
 📬 **Vamos Conectar!**  
 - [LinkedIn](https://br.linkedin.com/in/la%C3%ADs-porto-032193108) 
-- [Instagram](laisporto01)
+- [Instagram](laisporto1)
 - [Email](Laisporto@rocketmail.com)
 
 ---
